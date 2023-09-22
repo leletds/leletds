@@ -7,4 +7,4 @@ insta: @lee.braz
 
 
 
-![ ](https://tenor.com/pt-BR/view/mad-hello-kitty-argh-angry-gif-140832650)
+![](https://tenor.com/pt-BR/view/sanrio-my-melody-hello-kitty-gif-26146998)
